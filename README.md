@@ -106,5 +106,5 @@ As the world continues to grapple with health challenges, a proactive approach t
 
 > *“Preparedness is not a luxury — it's an imperative. Let’s forecast smarter and act earlier.”*
 
-📧 Contact: [yourname@email.com](mailto:yourname@email.com)\
-🌐 Website: [www.yourdomain.com](http://www.yourdomain.com)
+📧 Contact: [EMail](mailto:olakazeem@gmail.com)\
+🌐 Website: [My Poertfolio Website](http://www.oladimejikazeem.com)
